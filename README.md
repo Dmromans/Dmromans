@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dmromans
+- 👋 Hi, I’m Dillon Romans @dmromans
 - 👀 I’m interested in ... Aerospace Engineer, NFL, Graduating, and getting a job
 - 🌱 I’m currently learning ... How to use Github.
 - 💞️ I’m looking to collaborate on ... Our future Projects
